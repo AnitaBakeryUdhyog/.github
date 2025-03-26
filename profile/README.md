@@ -19,7 +19,7 @@ Anita Bakery Udhyog is a family-run bakery dedicated to making the freshest bake
 
 ## 📌 Visit Us
 📍 Location: [Susta - 1, Nawalparasi](https://maps.app.goo.gl/RLDpgc9WFLLmBASz6)  
-🌐 Website: [anitabakeryudhyog.com.np](http://anitabakerydhyog.com.np)  
+🌐 Website: [anitabakeryudhyog.com.np](https://anitabakerydhyog.com.np)  
 📧 Email: [info@anitabakeryudhyog.com.np](mailto:info@anitabakeryudhyog.com.np)  
 📲 Follow us on [Instagram](https://instagram.com/anitabakeryudhyog) & [Facebook](https://facebook.com/anitabakeryudhyog)! 
 
